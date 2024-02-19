@@ -1,2 +1,0 @@
-# elmalitopro.gifthub.io
-🤫🧏‍♀️
